@@ -7,7 +7,7 @@
 
 ###### Canto I
 
-        Dante se ve perdido, ante la presencia de la loba, el león y la pantera
+        Dante se ve perdido, ante la presencia de la loba, el león y la pantera;
         cada uno de los animales, puede reflejar la avaricía,la soberbia y envidia.
         Aparición de Virgilio como guía en el camino para llegar al cielo.
         
