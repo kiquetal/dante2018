@@ -18,5 +18,10 @@
         Beatriz,viene de un sitio al cual espera volver.
         Es en el limbo,donde se encuentran.
          
-
-       
+###### Canto III
+    
+        "Por mi se va a la ciudad del llanto, por mí se val eterno dolor, por mi
+        se va hacia la raza condenada. La justicia movió a mi supremo Hacedor.
+        El divino poder, la suma sabiduría y el primer, amor que me hicieron.
+        Antes de mí, no hubo nada creado, a excepción de lo inmortal,y yo, a mi vez
+        duraré eternamente.!Oh vosotros los que entráis, abandonad toda esperanza!.
