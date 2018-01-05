@@ -16,7 +16,6 @@
         Virgilio comenta que Beatriz,advertida por Santa Lucía y a instancias
         de la Virgen, es quien lo envía a rescatarlo.
         Beatriz,viene de un sitio al cual espera volver.
-        Es en el limbo,donde se encuentran.
         "Tanto me complace tu orden que aunque ya te hubiera obedecido me parecería
         que había tardado en hacerlo;no tienes más que expresarme tus deseos." 
 ###### Canto III
@@ -29,4 +28,5 @@
        
 ##### Canto IV
 
+        
         
