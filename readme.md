@@ -28,5 +28,12 @@
        
 ##### Canto IV
 
+        Primer círculo:El limbo. Niños inocentes, patriarcas y hombres ilustres
+        de la antiguedad.
+        "Estos no pecaron, y aunque han ganado méritos en el vida no es suficiente,
+        pues no recibieron el agua del bautismo que es la puerta de la Fé, que forma
+        tu creencia.Y si vivieron antes del cristianismo, no adoraron a Dios como debían.
+        ".
+        
         
         
