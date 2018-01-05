@@ -17,7 +17,8 @@
         de la Virgen, es quien lo envía a rescatarlo.
         Beatriz,viene de un sitio al cual espera volver.
         Es en el limbo,donde se encuentran.
-         
+        "Tanto me complace tu orden que aunque ya te hubiera obedecido me parecería
+        que había tardado en hacerlo;no tienes más que expresarme tus deseos." 
 ###### Canto III
     
         "Por mi se va a la ciudad del llanto, por mí se val eterno dolor, por mi
@@ -25,3 +26,7 @@
         El divino poder, la suma sabiduría y el primer, amor que me hicieron.
         Antes de mí, no hubo nada creado, a excepción de lo inmortal,y yo, a mi vez
         duraré eternamente.!Oh vosotros los que entráis, abandonad toda esperanza!.
+       
+##### Canto IV
+
+        
