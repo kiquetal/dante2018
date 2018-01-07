@@ -23,7 +23,8 @@
         "Por mi se va a la ciudad del llanto, por mí se val eterno dolor, por mi
         se va hacia la raza condenada. La justicia movió a mi supremo Hacedor.
         El divino poder, la suma sabiduría y el primer, amor que me hicieron.
-        Antes de mí, no hubo nada creado, a excepción de lo inmortal,y yo, a mi vez
+        Antes de mí, no hubo nada c
+        reado, a excepción de lo inmortal,y yo, a mi vez
         duraré eternamente.!Oh vosotros los que entráis, abandonad toda esperanza!.
        
 ##### Canto IV
@@ -42,6 +43,16 @@
         Minos el encargado de enviar a los pecadores a lugares específicos del
         infierno. Están aqui Helena de Troya, Paris,Tristán, Cleopatra
         Semíramis.
+        
+##### Canto VI
+
+        Tercer circulo: Los glotones.
+        Luego de despertarse del desmayo,Dante se encontraba en el círculo de
+        la lluvia eterna, maldita, fría y densa.
+        El guía de este infiernoes Cerbero, fiera cruel y monstruosa.
+        Dante pregunta si los tormentos serán mayores después de la gran sentencia.
+        Virgilio contesta: Cuanto más perfecta es una cosa, tanto mayor bien o dolor
+        experimenta.
         
        
         
