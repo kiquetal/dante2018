@@ -36,6 +36,12 @@
         ".
         
 ##### Canto V
+
+        Segundo círculo: Los lujuriosos, minos. Pecadores carnales.
+        Menos espacio que el primero y mucho más dolor.
+        Minos el encargado de enviar a los pecadores a lugares específicos del
+        infierno. Están aqui Helena de Troya, Paris,Tristán, Cleopatra
+        Semíramis.
         
        
         
