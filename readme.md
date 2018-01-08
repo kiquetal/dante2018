@@ -54,6 +54,17 @@
         Virgilio contesta: Cuanto más perfecta es una cosa, tanto mayor bien o dolor
         experimenta.
         
-       
+###### Canto VII
+
+        Cuarto círculo: Los ávaros y los meláncolicos.
+        Custodio: Plutón.
+        "Por qué guardas o por qué derrochas?".Se lanzaban en dos filas
+        grandes pesos contra el pecho.Por haber gastado mal y guardado mal han
+        perdido el Paraíso y son condenados a un eterno combate.
+        La Fortuna pasa y se lleva consigo vidas por vanalidades materiales.
+        Bajos las aguas están hay una raza condenada que suspira y hace hervir 
+        en la superficie."Estuvimos siempre meláncolicos bajo aquel aire dulce 
+        que alegra el Sol, llevando en nuestro interior una tétrica humareda;
+        ahora nos entristecemos también en el medio de este negro cieno"
         
         
