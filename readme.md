@@ -67,4 +67,14 @@
         que alegra el Sol, llevando en nuestro interior una tétrica humareda;
         ahora nos entristecemos también en el medio de este negro cieno"
         
+ ##### Canto VIII
+ 
+        Quinto circulo: Los irascible,Flegias, Felipe Argenti. La ciudad de 
+        Dite.
+        "Quien es ese que sin haber muerto anda por el reino de los muertos"
+        
+ ##### Canto IX
+        Tres Furias infernales. 
+        Medusa,que enamoró a Neptuno, y éste llegando a profanar el templo
+        de Minerva.
         
