@@ -78,3 +78,27 @@
         Medusa,que enamoró a Neptuno, y éste llegando a profanar el templo
         de Minerva.
         
+ ##### Canto X
+        Sexto Circulo.Los herejes.
+        Lugar donde está Epicuro y todos sus sectarios [Epicuro no acepta la inmortalidad
+        del alma]
+        La deidad que reina aquí no mostrará cincuenta veces su faz iluminada
+        sin que tú conozcas lo difícil de este arte.
+
+###### Canto XI
+        Sexto Círculo.
+        Tres inclinaciones que el cielo reprobra:
+        La incontinencia,la maldad y la loca bestialidad.
+
+###### Canto XII        
+        Séptimo círculo: Primer recinto, los violentos contra el prójimo.
+        EL minotauro.
+        Oh ciega pasión, Oh ira desatentada, que nos aguijonea de tal modo
+        en nuestra corta vida y así nos sumerge en sangre hirviente por toda una
+        eternidad.
+        Encuentro con los 3 minotauros.
+###### Canto XIII
+
+        Los suicidas son convertidos en troncos.
+        Impúdicoos ojos [la envidia]
+        Yo de mi casa hice mi propia horca.        
