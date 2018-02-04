@@ -101,4 +101,39 @@
 
         Los suicidas son convertidos en troncos.
         Impúdicoos ojos [la envidia]
-        Yo de mi casa hice mi propia horca.        
+        Yo de mi casa hice mi propia horca.
+
+###### Canto XIV        
+    
+        Tercer recinto, 
+        Capaneo sitió Tebas, desafió a Jupiter y murió blasfemando.
+
+###### Canto XV
+        Tercer recinto, violentos contra la naturaleza.
+        Se encuentra con Brunetto.
+       
+###### Canto XVI
+
+         El hombre debe,siempre que pueda, cerrar sus labios
+         antes de decir una verdad que tenga visos de mentira.
+         
+###### Canto XVII
+        
+        Tercer Recinto:Los violentos contra el Arte.
+        Guerión y familia de usureros.
+        
+###### Canto XVIII
+
+        Octavo círculo,primer foso: Los rufiantes y seductores.
+        Los rufianes y seductores son los que aprovechan las pasiones
+        de los demás para servir sus propios intereses.
+        Segundo foso: los aduladores.
+        "Vi uno con la cabeza tan sucia de excrementos que yo no podía
+        saber si era clérigo o seglar".
+
+###### Canto XIX
+        
+        Octavo círculo:tercer foso: Los simoníacos.
+        Comercio con las cosas divinas:-> "simoníaco".
+        
+        
